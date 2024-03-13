@@ -2,7 +2,7 @@
 - 👀 I’m interested in becoming what I most desire
 - 🌱 I’m currently learning Python
 - 💞️ I’m looking to collaborate on nothing
-- 📫 How to reach me:
+- 📫 How to reach me: Don't, just don't
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: Cheese
 
